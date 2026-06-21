@@ -1,0 +1,1 @@
+# gatukusimon6-stack.github.io.
